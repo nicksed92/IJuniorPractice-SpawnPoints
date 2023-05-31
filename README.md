@@ -1,1 +1,1 @@
-[# IJuniorPractice-SpawnPoints](https://www.youtube.com/watch?v=Y-lukqjG6kI)
+https://www.youtube.com/watch?v=Y-lukqjG6kI
